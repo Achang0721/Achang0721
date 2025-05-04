@@ -34,7 +34,7 @@
 
 ### 📫 Let’s Connect
 
-- 📧 Email: achang0721@example.com  
+- 📧 Email: 17828025121@163.com  
 - 🌐 GitHub: [@Achang0721](https://github.com/Achang0721)
 
 ---
